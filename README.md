@@ -5,4 +5,4 @@ I'm an experienced Software Engineer Passionate about solving problems and devel
 Thank you for visiting Github profile.
 If you to contact me I ' ll leave my linkedIn profile link below,
 
-My LinkedIn link - https://www.linkedin.com/in/anurada-senaratne-5a03ab268/
+My LinkedIn link - https://www.linkedin.com/in/anuradha-senaratne-5a03ab268
